@@ -1,0 +1,5 @@
+# Date-of-Birth-Assignment
+LUKYAMUZI ALLAN
+16/U/6672/PSA
+216009102
+B. ELE 1
